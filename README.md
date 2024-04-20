@@ -1,4 +1,4 @@
-3/18(月)19:30～THE RAMPAGE OFFICIAL FAN CLUB会員限定生配信 『THE RAMPAGE LIVE TOUR 2024 "CyberHelix" RX-16 〜Kickoff Party〜』開催!!
+.3/18(月)19:30～THE RAMPAGE OFFICIAL FAN CLUB会員限定生配信 『THE RAMPAGE LIVE TOUR 2024 "CyberHelix" RX-16 〜Kickoff Party〜』開催!!
 3/18(月)19:30～THE RAMPAGE OFFICIAL FAN CLUB会員限定生配信
 『THE RAMPAGE LIVE TOUR 2024 "CyberHelix" RX-16 〜Kickoff Party〜』開催が決定!!
 
